@@ -1,1 +1,1 @@
-More time
+More time to study
